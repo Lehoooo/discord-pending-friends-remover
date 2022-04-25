@@ -16,3 +16,4 @@ Astral#5555 for helping me test (spamming me 🙄🙄)
 # After Bot
 ![image](https://user-images.githubusercontent.com/52742690/165020879-a8444f3c-1da6-43b5-a48a-61368ece9d43.png)
 
+🥱🥱
